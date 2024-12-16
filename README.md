@@ -1,0 +1,1 @@
+# shopify-before-and-after-slider-section
